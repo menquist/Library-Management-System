@@ -1,4 +1,3 @@
-Here is a rephrased version of your message with no emojis:
 
 ---
 
